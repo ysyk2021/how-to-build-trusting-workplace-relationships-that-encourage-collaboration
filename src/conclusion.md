@@ -1,5 +1,4 @@
 
-
 Building trusting workplace relationships is essential for driving collaboration, empowerment, and success. In this book, we have explored strategies for building trust in the workplace, including communication, accountability, mentorship, delegation, and creating a culture of trust.
 
 Summary of Key Points
