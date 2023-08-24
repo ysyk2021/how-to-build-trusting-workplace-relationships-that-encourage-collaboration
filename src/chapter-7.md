@@ -1,5 +1,3 @@
-Chapter 7: Encouraging Collaboration and Innovation
-===================================================
 
 In this chapter, we will explore the importance of encouraging collaboration and innovation in building trusting workplace relationships, strategies for encouraging collaboration and innovation, and using brainstorming and design thinking techniques.
 

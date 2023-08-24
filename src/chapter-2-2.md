@@ -1,5 +1,3 @@
-The Impact of Trust on Personal and Professional Development
-=============================================================================================================
 
 Trust is a key factor in building successful workplace relationships. In this chapter, we will explore the impact of trust on personal and professional development.
 

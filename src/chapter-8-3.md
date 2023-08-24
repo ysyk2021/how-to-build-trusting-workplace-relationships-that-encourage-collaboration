@@ -1,5 +1,3 @@
-Adjusting Trust-Building Strategies Based on Feedback
-=========================================================================================
 
 In this chapter, we will explore the importance of measuring trust success and adjusting trust-building strategies based on feedback.
 

@@ -1,5 +1,3 @@
-Strategies for Building Team Cohesion
-========================================================================
 
 In this chapter, we will explore strategies for building team cohesion in the workplace.
 

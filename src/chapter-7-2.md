@@ -1,5 +1,3 @@
-Strategies for Encouraging Collaboration and Innovation
-============================================================================================================
 
 In this chapter, we will explore strategies for encouraging collaboration and innovation in the workplace.
 

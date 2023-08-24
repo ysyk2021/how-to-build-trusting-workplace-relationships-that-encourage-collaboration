@@ -1,5 +1,3 @@
-Strategies for Using Trust Skills to Become a Better Leader
-===========================================================================================================
 
 In this chapter, we will explore strategies for using trust skills to become a better leader.
 

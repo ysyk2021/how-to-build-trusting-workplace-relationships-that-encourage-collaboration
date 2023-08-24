@@ -1,5 +1,3 @@
-Strategies for Building Trusting Workplace Relationships
-=========================================================================================================
 
 Building trusting workplace relationships is essential for driving collaboration, empowerment, and success. In this chapter, we will explore some effective strategies for building trusting workplace relationships.
 

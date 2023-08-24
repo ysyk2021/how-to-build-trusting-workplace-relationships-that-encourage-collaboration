@@ -1,5 +1,3 @@
-Chapter 6: Developing Empowerment Strategies
-============================================
 
 In this chapter, we will explore the role of empowerment strategies in building trusting workplace relationships, strategies for developing empowerment strategies, and using delegation and mentorship frameworks.
 

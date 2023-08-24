@@ -1,5 +1,3 @@
-Strategies for Creating a Culture of Trust
-==================================================================================
 
 In this chapter, we will explore strategies for creating a culture of trust in the workplace.
 

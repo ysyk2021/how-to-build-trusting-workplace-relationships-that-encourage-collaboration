@@ -1,5 +1,3 @@
-Fostering Open Communication - The Role of Open Communication in Building Trusting Workplace Relationships
-=====================================================================================================================
 
 Open communication is essential for building trusting workplace relationships. In this chapter, we will explore the role of open communication in building trusting workplace relationships.
 

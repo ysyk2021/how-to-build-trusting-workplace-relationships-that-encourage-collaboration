@@ -1,5 +1,3 @@
-The Role of Empowerment Strategies in Building Trusting Workplace Relationships
-=============================================================================================================================
 
 In this chapter, we will explore the role of empowerment strategies in building trusting workplace relationships.
 

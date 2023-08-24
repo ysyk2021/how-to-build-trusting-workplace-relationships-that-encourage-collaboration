@@ -1,5 +1,3 @@
-Creating a Culture of Trust - Using Transparency and Accountability Techniques
-=========================================================================================
 
 Creating a culture of trust is essential for building workplace relationships that encourage collaboration and empowerment. In this chapter, we will explore the importance of transparency and accountability techniques in creating a culture of trust.
 

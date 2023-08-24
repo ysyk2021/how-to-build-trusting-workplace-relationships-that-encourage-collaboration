@@ -1,5 +1,3 @@
-Strategies for Fostering Open Communication
-====================================================================================
 
 In this chapter, we will explore strategies for fostering open communication in the workplace.
 

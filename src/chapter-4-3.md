@@ -1,5 +1,3 @@
-Using Active Listening and Non-Judgmental Feedback Techniques
-======================================================================================================
 
 In this chapter, we will explore the importance of active listening and non-judgmental feedback techniques in fostering open communication in the workplace.
 

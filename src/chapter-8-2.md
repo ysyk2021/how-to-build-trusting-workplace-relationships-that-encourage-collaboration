@@ -1,5 +1,3 @@
-Analyzing Personal and Team Trust Data and KPIs
-===================================================================================
 
 In this chapter, we will explore how to analyze personal and team trust data and key performance indicators (KPIs) to measure trust success in the workplace.
 

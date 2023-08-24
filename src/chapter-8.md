@@ -1,5 +1,3 @@
-Chapter 8: Measuring Trust Success
-==================================
 
 In this chapter, we will explore methods for measuring trust success, analyzing personal and team trust data and KPIs, and adjusting trust-building strategies based on feedback.
 

@@ -1,5 +1,3 @@
-Chapter 5: Building Team Cohesion
-=================================
 
 In this chapter, we will explore the importance of building team cohesion in building trusting workplace relationships, strategies for building team cohesion, and using team-building activities and cross-functional projects.
 

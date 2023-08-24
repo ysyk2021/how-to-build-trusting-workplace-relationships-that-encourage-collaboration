@@ -1,5 +1,3 @@
-Leading with Integrity and Empathy
-==================================================================================
 
 In this chapter, we will explore the importance of leading with integrity and empathy when applying trust skills to leadership.
 

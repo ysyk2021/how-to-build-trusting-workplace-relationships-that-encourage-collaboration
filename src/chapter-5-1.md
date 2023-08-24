@@ -1,5 +1,3 @@
-Building Team Cohesion - The Importance of Building Team Cohesion in Building Trusting Workplace Relationships
-=========================================================================================================================
 
 Building team cohesion is essential for building trusting workplace relationships. In this chapter, we will explore the importance of building team cohesion and how it contributes to building trusting workplace relationships.
 

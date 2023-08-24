@@ -1,5 +1,3 @@
-The Importance of Creating a Culture of Trust in the Workplace
-======================================================================================================
 
 Creating a culture of trust is essential for building successful workplace relationships and driving organizational success. In this chapter, we will explore the importance of creating a culture of trust in the workplace.
 

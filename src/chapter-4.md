@@ -1,5 +1,3 @@
-Chapter 4: Fostering Open Communication
-=======================================
 
 In this chapter, we will explore the role of open communication in building trusting workplace relationships, strategies for fostering open communication, and using active listening and non-judgmental feedback techniques.
 

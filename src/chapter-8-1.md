@@ -1,5 +1,3 @@
-Methods for Measuring Trust Success
-=======================================================================
 
 In this chapter, we will explore methods for measuring trust success in the workplace.
 

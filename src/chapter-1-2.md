@@ -1,5 +1,3 @@
-Benefits of Trust in the Workplace for Personal and Professional Development
-=====================================================================================================
 
 Trust is a fundamental component of successful workplace relationships. In this chapter, we will explore the benefits of trust in the workplace for personal and professional development.
 

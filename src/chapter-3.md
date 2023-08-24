@@ -1,5 +1,3 @@
-Chapter 3: Creating a Culture of Trust
-======================================
 
 In this chapter, we will explore the importance of creating a culture of trust in the workplace, strategies for creating a culture of trust, and using transparency and accountability techniques.
 

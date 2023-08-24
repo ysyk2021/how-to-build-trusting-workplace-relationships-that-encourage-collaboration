@@ -1,5 +1,3 @@
-Chapter 9: Applying Trust Skills to Leadership
-==============================================
 
 In this chapter, we will explore the benefits of applying trust skills to leadership, strategies for using trust skills to become a better leader, and the importance of leading with integrity and empathy.
 

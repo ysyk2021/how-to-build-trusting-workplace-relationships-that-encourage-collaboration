@@ -1,5 +1,3 @@
-Using Team-Building Activities and Cross-Functional Projects
-===============================================================================================
 
 In this chapter, we will explore how to build team cohesion in the workplace using team-building activities and cross-functional projects.
 

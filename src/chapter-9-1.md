@@ -1,5 +1,3 @@
-The Benefits of Applying Trust Skills to Leadership
-===================================================================================================
 
 In this chapter, we will explore the benefits of applying trust skills to leadership.
 

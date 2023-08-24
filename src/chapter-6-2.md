@@ -1,5 +1,3 @@
-Strategies for Developing Empowerment Strategies
-==============================================================================================
 
 In this chapter, we will explore strategies for developing empowerment strategies in the workplace.
 

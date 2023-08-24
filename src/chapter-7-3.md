@@ -1,5 +1,3 @@
-Using Brainstorming and Design Thinking Techniques
-=======================================================================================================
 
 In this chapter, we will explore how to encourage collaboration and innovation in the workplace using brainstorming and design thinking techniques.
 

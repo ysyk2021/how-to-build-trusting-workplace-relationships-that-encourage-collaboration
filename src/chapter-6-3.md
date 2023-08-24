@@ -1,5 +1,3 @@
-Using Delegation and Mentorship Frameworks
-========================================================================================
 
 Empowerment is a crucial element of building trusting workplace relationships. In this chapter, we will explore two effective strategies for developing empowerment in the workplace: delegation and mentorship.
 

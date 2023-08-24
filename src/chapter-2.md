@@ -1,5 +1,3 @@
-Chapter 2: Understanding Trust in the Workplace
-===============================================
 
 In this chapter, we will explore the definition of trust in the workplace, the impact of trust on personal and professional development, and strategies for building trusting workplace relationships.
 

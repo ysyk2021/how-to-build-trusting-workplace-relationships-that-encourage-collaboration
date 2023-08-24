@@ -1,5 +1,3 @@
-Definition of Trust in the Workplace
-=====================================================================================
 
 Trust is a fundamental component of successful workplace relationships. In this chapter, we will explore the definition of trust in the workplace.
 
