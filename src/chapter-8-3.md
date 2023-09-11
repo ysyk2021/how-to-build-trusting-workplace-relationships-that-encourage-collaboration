@@ -1,5 +1,4 @@
-Chapter 12: Adjusting Trust-Building Strategies Based on Feedback
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adjusting trust-building strategies based on feedback received from employees. By actively seeking and considering feedback, leaders can make informed decisions to refine and adapt their trust-building initiatives, fostering stronger workplace relationships and promoting collaboration and empowerment among employees.
 

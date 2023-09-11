@@ -1,5 +1,4 @@
-Chapter 8: Using Team-Building Activities and Cross-Functional Projects
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Team-building activities and cross-functional projects are powerful tools for building trusting workplace relationships that encourage collaboration and empowerment among employees. In this chapter, we will explore the benefits of utilizing these strategies and provide practical tips for incorporating them into your organization.
 

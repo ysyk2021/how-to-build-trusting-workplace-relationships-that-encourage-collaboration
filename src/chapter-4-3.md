@@ -1,5 +1,4 @@
-Chapter 8: Using Active Listening and Non-judgmental Feedback Techniques
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any workplace, effective communication is essential for building trusting relationships, promoting collaboration, and empowering employees. One key aspect of communication that plays a crucial role in fostering trust and empowerment is the use of active listening and non-judgmental feedback techniques. This chapter explores the significance of these techniques and provides guidance on how to effectively implement them.
 

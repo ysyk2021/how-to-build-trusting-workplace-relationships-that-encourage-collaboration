@@ -1,5 +1,4 @@
-Chapter 10: Leading with Integrity and Empathy
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's modern workplaces, effective leadership goes beyond just managing tasks and giving orders. It requires leaders to lead with integrity and empathy, fostering trusting workplace relationships that encourage collaboration and empowerment among employees. This chapter explores the importance of leading with integrity and empathy and provides practical strategies for incorporating these qualities into your leadership approach.
 

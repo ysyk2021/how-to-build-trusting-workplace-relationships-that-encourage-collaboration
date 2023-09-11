@@ -1,5 +1,4 @@
-Chapter 10: The Benefits of Applying Trust Skills to Leadership
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any organization, effective leadership is crucial for fostering a culture of trust and building strong workplace relationships. Leaders who apply trust skills are better equipped to engage and empower their employees, leading to increased collaboration and productivity. This chapter explores the benefits of applying trust skills to leadership and provides insights on how leaders can develop and demonstrate trust in their roles.
 

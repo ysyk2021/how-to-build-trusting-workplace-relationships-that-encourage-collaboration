@@ -1,5 +1,4 @@
-Chapter 8: The Impact of Trust on Personal and Professional Development
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Trust plays a crucial role in personal and professional development within the workplace. When individuals trust their colleagues, supervisors, and the overall organization, it creates an environment conducive to growth, collaboration, and empowerment. In this chapter, we will explore the profound impact that trust has on personal and professional development.
 

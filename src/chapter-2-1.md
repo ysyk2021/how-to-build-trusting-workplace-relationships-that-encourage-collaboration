@@ -1,5 +1,4 @@
-Chapter X: Definition of Trust in the Workplace
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the modern workplace, trust plays a fundamental role in fostering strong relationships, promoting collaboration, and empowering employees. Trust is the foundation upon which effective teamwork, communication, and productivity are built. In this chapter, we will explore the definition of trust in the workplace and its significance in creating a positive and thriving organizational culture.
 

@@ -1,5 +1,4 @@
-Chapter 7: The Role of Open Communication in Building Trusting Workplace Relationships
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is the foundation of building trusting workplace relationships. In this chapter, we will explore the significant role that open communication plays in fostering trust, collaboration, and empowerment among employees. By establishing an environment where open communication is encouraged and valued, organizations can create a culture of transparency, respect, and mutual understanding.
 

@@ -1,5 +1,4 @@
-Chapter 10: Using Transparency and Accountability Techniques
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building trusting workplace relationships that encourage collaboration and empowerment among employees requires a foundation of transparency and accountability. When organizations prioritize transparency and establish a culture of accountability, it fosters open communication, builds trust, and empowers employees to take ownership of their work. This chapter explores the importance of transparency and accountability and provides practical techniques for implementing them in the workplace.
 

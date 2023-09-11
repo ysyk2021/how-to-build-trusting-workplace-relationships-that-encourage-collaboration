@@ -1,5 +1,4 @@
-Chapter 12: Methods for Measuring Trust Success
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various methods for measuring the success of trust-building efforts in the workplace. Measuring trust is crucial as it allows leaders to assess the effectiveness of their strategies and identify areas for improvement. By evaluating trust levels, organizations can gauge the impact on collaboration, empowerment, and overall employee satisfaction.
 

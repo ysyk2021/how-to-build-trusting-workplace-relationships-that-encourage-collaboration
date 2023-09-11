@@ -1,5 +1,4 @@
-Chapter 9: The Importance of Building Team Cohesion in Building Trusting Workplace Relationships
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building trusting workplace relationships is essential for fostering collaboration and empowerment among employees. One critical aspect of nurturing these relationships is building team cohesion. When team members feel connected and cohesive, they are more likely to trust one another, communicate effectively, and work together towards shared goals. This chapter explores the significance of team cohesion in building trusting workplace relationships and provides strategies for promoting cohesion within teams.
 

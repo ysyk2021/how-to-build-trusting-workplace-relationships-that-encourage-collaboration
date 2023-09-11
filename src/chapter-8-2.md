@@ -1,5 +1,4 @@
-Chapter 11: Analyzing Personal and Team Trust Data and KPIs
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of analyzing personal and team trust data and Key Performance Indicators (KPIs) to build trusting workplace relationships that encourage collaboration and empowerment among employees. By measuring trust levels and tracking relevant metrics, leaders can gain valuable insights into the health of their teams and make data-driven decisions to foster a trusting and productive work environment.
 

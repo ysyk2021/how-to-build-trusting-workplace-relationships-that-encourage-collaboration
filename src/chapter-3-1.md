@@ -1,5 +1,4 @@
-Chapter 10: The Importance of Creating a Culture of Trust in the Workplace
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any organization, trust is the bedrock of successful workplace relationships. When employees feel trusted and trust their colleagues and leaders, it fosters an environment of collaboration, empowerment, and high performance. This chapter explores the importance of creating a culture of trust in the workplace and provides insights on how to cultivate trust among team members.
 

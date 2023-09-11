@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Building Trusting Workplace Relationships
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building trust in the workplace is essential for fostering collaborative and empowering relationships among employees. Trust forms the foundation upon which effective teamwork, communication, and productivity thrive. In this chapter, we will explore practical strategies that can be employed to build trusting workplace relationships.
 

@@ -1,5 +1,4 @@
-Chapter 8: The Role of Empowerment Strategies in Building Trusting Workplace Relationships
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and competitive business environment, building trusting workplace relationships is essential for fostering collaboration and empowering employees. One key aspect that plays a crucial role in developing such relationships is the implementation of empowerment strategies. Empowerment strategies empower individuals and teams, enabling them to take ownership of their work, make decisions, and contribute meaningfully to the organization. In this chapter, we will explore the significant role that empowerment strategies play in building trusting workplace relationships.
 

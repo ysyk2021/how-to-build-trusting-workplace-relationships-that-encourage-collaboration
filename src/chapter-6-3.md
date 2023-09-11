@@ -1,5 +1,4 @@
-Chapter 8: Using Delegation and Mentorship Frameworks
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Delegation and mentorship play crucial roles in building trusting workplace relationships that foster collaboration and empower employees. In this chapter, we will explore the effective use of delegation and mentorship frameworks as powerful tools for developing talent, enhancing teamwork, and creating a culture of support and growth within organizations.
 

@@ -1,5 +1,4 @@
-Chapter 9: Using Brainstorming and Design Thinking Techniques
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In building trusting workplace relationships that encourage collaboration and empowerment among employees, utilizing brainstorming and design thinking techniques can be highly effective. These methods foster creativity, encourage diverse perspectives, and promote a culture of innovation. This chapter explores the benefits of brainstorming and design thinking and provides practical strategies for incorporating these techniques into your organization.
 
